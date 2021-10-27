@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Web development**
 
-- 📫 How to reach me [e-mail](satarupamahato01@gmail.com) [instagram](www.instagram.com/satarupa1947)
+- 📫 How to reach me [e-mail](satarupamahato01@gmail.com) [instagram](https://instagram.com/satarupa1947)
 
 - ⚡ Fun fact **I think I'm a bit sarcastic:):**
 
